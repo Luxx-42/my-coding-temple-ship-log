@@ -1,0 +1,1 @@
+In survival situations, use your compass to signal for help by creating a reflective surface or using it to create a large "SOS" pattern on the ground.
